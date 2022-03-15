@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SimeonAndSolomon
+- 👋 Hi, I’m ur mom ;)
 - 👀 I’m interested in HoRsEs, aNiMe
 - 🌱 I’m currently learning stuff...
 - 💞️ I’m looking to collaborate on -snorts cutely-
